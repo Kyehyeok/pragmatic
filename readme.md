@@ -1,1 +1,1 @@
-It is just for studying. haha
+just studying
